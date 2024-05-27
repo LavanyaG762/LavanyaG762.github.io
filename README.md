@@ -3,15 +3,15 @@ LAVANYA GANESAN
 
 St. Louis, MO, 63108, USA, Phone: 3143936980; E-mail: lavanya.ganesan@slu.edu
 
-LinkedIn profile: https://www.linkedin.com/in/lavanya-ganesh-a46142205
+**LinkedIn profile:** https://www.linkedin.com/in/lavanya-ganesh-a46142205
 
 ________________________________________
 
-PROFESSIONAL SUMMARY
+**PROFESSIONAL SUMMARY**
 
 Detail-oriented person with strong organizational skills. Ability to handle multiple projects simultaneously with a high degree of accuracy. My unwavering dedication to improvement, coupled with adaptable leadership, equips me to excel in guiding teams through complexity, fostering collaboration, and achieving exceptional results.
 
-ACADEMIC QUALIFICATIONS
+**ACADEMIC QUALIFICATIONS**
 
 Master of Science, Information Technology Project Management, Saint Louis University, Saint Louis, Missouri: Aggregate/GPA: 3.7/4.0; Aug'23 to July' 25
 
